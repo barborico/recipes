@@ -37,7 +37,7 @@ For a more savory truffle, try using dark chocolate, cooking to a darker color i
 
 ### Dairy-Free
 
-[UNTESTED] Use a vegan [heavy cream substitute](../README.md#Heavy%20Cream).
+[UNTESTED] Use a vegan [heavy cream substitute](../README.md#Heavy-Cream).
 
 ## References
 

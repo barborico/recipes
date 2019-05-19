@@ -28,7 +28,7 @@ This is my lazy stir fry. You can easily shake it up by adding more/different ve
 
 ## Instructions
 
-1. Chop the veggies and [salt the eggplant](../README.md#Salting%20Eggplant). Cut the protein into strips.
+1. Chop the veggies and [salt the eggplant](../README.md#Salting-Eggplant). Cut the protein into strips.
 2. Mix the sauce in a bowl. Pour 1/4 into a small pan and set the rest aside.
 3. Add the protein to the pan and fry until golden.
 4. In a larger pan, add 1 Tbsp olive oil and the garlic, if using it. Heat this, stirring often, until the garlic is fragrant.

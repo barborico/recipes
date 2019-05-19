@@ -52,7 +52,7 @@ If you choose to refrigerate the finished truffles, you should remove them from 
 
 ### Dairy-Free
 
-Use a vegan [heavy cream substitute](../README.md#Heavy%20Cream). I've used the soymilk/coconut oil blend and the resulting flavor and texture are just as good as with heavy cream.
+Use a vegan [heavy cream substitute](../README.md#Heavy-Cream). I've used the soymilk/coconut oil blend and the resulting flavor and texture are just as good as with heavy cream.
 
 ### Peanut Butter
 

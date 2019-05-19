@@ -24,7 +24,7 @@ Delicious eggplant dish that works well as a side or over rice. If you're servin
 ## Instructions
 
 1. Cut the eggplant into medallions about half an inch thick, and subdivide these as necessary.
-2. [Salt the eggplant.](../README.md#Salting%20Eggplant)
+2. [Salt the eggplant.](../README.md#Salting-Eggplant)
 3. In a bowl, mix the liquid aminos or black bean sauce, oyster sauce, corn starch, and water. Stir the sauce well so that the starch dissolves.
 4. Dry the eggplant and sprinkle it with corn starch for a light coating.
 5. In a large saucepan, heat 2 Tbsp of the oil on medium-high. Add the eggplant and grill until it is soft and the surfaces are darkened (about 10 minutes). Then remove the eggplant from the pan and set it aside.
