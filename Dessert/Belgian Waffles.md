@@ -8,7 +8,7 @@
 
 "These are the best waffles I've ever had." -- my housemate
 
-This recipe takes waffles to a new level. They are heavy, yeasty, and desserty, although they can work as a breakfast if you're feeling decadent. I recommend topping with fruit, whipped cream, and/or [orange syrup](Chocolate-Covered-Candied-Orange-Peel).
+This recipe takes waffles to a new level. They are heavy, yeasty, and desserty, although they can work as a breakfast if you're feeling decadent. I recommend topping with fruit, whipped cream, and/or [orange syrup](Chocolate-Covered%20Candied%20Orange%20Peel.md).
 
 ## Ingredients
 
