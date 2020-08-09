@@ -1,4 +1,4 @@
-# Colin's Brussel Sprouts
+# Connie's Brussel Sprouts
 
 **Vegan**  
 **Servings:** variable  
@@ -6,7 +6,7 @@
 
 ## Description
 
-Roasted brussel sprouts, deliciously crispy on the outside and soft on the inside. Colin got mom hooked on this one!
+Roasted brussel sprouts, deliciously crispy on the outside and soft on the inside. Connie got mom hooked on this one!
 
 ## Ingredients
 

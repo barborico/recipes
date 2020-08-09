@@ -2,7 +2,7 @@
 
 **Vegan**  
 **Servings:** 2 1/2 cups  
-**Time:** 0
+**Time:** 15 minutes, plus 60+ minutes to press tofu
 
 ## Description
 
@@ -33,6 +33,10 @@ This ricotta is good in baking, on pasta, or in salads. It will keep in the frid
 ### Crumbly Topping
 
 To get a crumbly topping for salads or pastas, add the ricotta to a skillet over medium-high heat. Cook for 5-10 minutes, stirring occasionally, until parts brown and it acquires a drier texture.
+
+### Go Plain
+
+Leave off the basil.
 
 ## References
 

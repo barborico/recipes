@@ -55,6 +55,10 @@ See an example of [how to roll pasta](https://youtu.be/GgaRW1Gjv0Q?t=244).
 
 ## Variations
 
+### Lazy Shapes
+
+If you're pressed for time and don't care too much about the pasta's appearance, you can scoop teaspoonfuls of dough directly into the boiling water for cooking or onto a floured tray for freezing.
+
 ### Freezing
 
 These gnocchi can be frozen for long term storage. To do so, place the rolled pastas from step 4 in a single layer on a cookie sheet in the freezer (this keeps them from sticking in clumps). Once they're solid, you can transfer them to a ziplock bag.

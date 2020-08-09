@@ -19,7 +19,7 @@ Blah blah
 ## Instructions
 
 1. Do this.
-2. Do that.
+1. Do that.
 
 ## Variations
 

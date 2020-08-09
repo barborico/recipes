@@ -29,13 +29,19 @@ In my experience, **soymilk** is the best substitute when cooking. Nut milks may
 
 **Refined coconut oil** (which lacks a coconut flavor) is solid at room temperature and may be more suitable for baking.
 
+Mashed **avocado** can also be a healthy and tasty substitute when baking--especially in chocolatey treats.
+
 Finally, **vegan butters** are available in most stores and will do in a pinch. My favorite is [Pure Blends' avocado oil plant-based butter](https://www.pureblendsbrand.com/product/avocado-oil-plant-based-butter/).
 
 ## Heavy Cream
 
 **Coconut cream** (or full-fat coconut milk) can often replace heavy cream if you don't mind tasting the coconut in your finished product.
 
-Another substitute that I've used successfully in the past is a mixture of **[butter substitute](#Butter) and soymilk**. This mimics the fat content of heavy cream. Melt the butter substitute in the microwave and blend into the soymilk, being careful of steam and frothing that may ensue.
+Another substitute that I've used successfully in the past is a 1:2 mixture of **[butter substitute](#Butter) and soymilk**. This mimics the fat content of heavy cream. Melt the butter substitute in the microwave and blend into the soymilk, being careful of steam and frothing that may ensue.
+
+## Mayonnaise
+
+My household has tried a few vegan mayos, and the clear winner for us has been [Follow Your Heart](https://followyourheart.com/) brand (definitely avoid Hellmann's).
 
 ## Eggs
 
