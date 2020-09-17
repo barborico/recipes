@@ -1,18 +1,20 @@
 # Suzanne's Spinach Salad
 
 **Vegan**  
-**Servings:** many 
-**Time:** 1.5 hours
+**Servings:** many  
+**Time:** 1.5 hours  
 
-## Great for making a large batch for lunches throughout the week. Keeps its flavor and structure well.
+## Description
+
+Great for making a large batch for lunches throughout the week. Keeps its flavor and structure well.
 
 ## Ingredients
 
 Dressing:
-- Juice of 2 **oranges**
-- Zest of 2 **orange rinds**
-- 2-3 tsp **fennel seeds** (freshly ground)
-- **Salt**, **pepper** (freshly ground)
+- Juice and zest of 2 **oranges**
+- 2-3 tsp **fennel seeds**, freshly ground
+- **Salt**
+- **Pepper**, freshly ground
 - ~1/2 cup **olive oil**
 - **Champagne vinegar**
 - Finely diced **red onion**
