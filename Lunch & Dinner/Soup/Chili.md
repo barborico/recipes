@@ -40,7 +40,7 @@ This dish will keep well in the refrigerator for about a week, or you can freeze
 1. Chop the bell peppers, carrots, and celery.
 2. In a large Dutch oven or heavy-bottomed pot over medium heat, warm the olive oil until shimmering. Add the chopped vegetables and 1/2 teaspoon salt. Stir to combine and cook, stirring occasionally, until the vegetables are tender (about 7 to 10 minutes).
 3. Add the garlic, chili powder, cumin, smoked paprika and oregano. Cook until fragrant while stirring constantly, about 1 minute.
-4. Add the diced tomatoes and their juices, drained beans, vegetable broth, and bay leaf. Stir to combine and let the mixture come to a simmer. Continue cooking, stirring occasionally and reducing heat as necessary to maintain a gentle simmer, for 30 minutes. Remove the chili from the heat.
+4. Add the diced tomatoes and their juices, drained beans, corn, vegetable broth, and bay leaf. Stir to combine and let the mixture come to a simmer. Continue cooking, stirring occasionally and reducing heat as necessary to maintain a gentle simmer, for 30 minutes. Remove the chili from the heat.
 5. For the best texture and flavor, transfer 1 ½ cups of the chili to a blender, making sure to get some of the liquid portion. Securely fasten the lid and blend until smooth (watch out for hot steam), then pour the blended mixture back into the pot. (Or, you can blend the chili briefly with an immersion blender, or mash the chili with a potato masher until it reaches a thicker, more chili-like consistency.)
 6. Add salt (and more of the spices) to taste.
 7. Serve garnished with the avocado.
