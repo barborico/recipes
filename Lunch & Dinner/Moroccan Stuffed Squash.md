@@ -15,14 +15,14 @@ Fall and winter are squash seasons! This is a great way to use acorn or similar 
 - 4 **acorn squash** (about 5 pounds total), halved lengthwise, seeds removed
 - 3 Tbsp canola or **olive oil**, plus extra for brushing
 - 1 tsp **salt**, plus extra for sprinkling
-- 1 1/2 tsp **cinnamon**
+- 2 tsp **cinnamon**
 - 2 Tbsp **coriander**
 - 2 tsp **cumin**
 - 1 Tbsp smoked **paprika**
-- 1/2 - 1 tsp **cayenne pepper**
+- 3/4 - 1 tsp **cayenne pepper**
 - 1/2 tsp **turmeric**
 - 1 cup finely chopped **onion**
-- 4 medium cloves finely chopped **garlic**
+- 5 medium cloves finely chopped **garlic**
 - 3 cans **chickpeas**
 - 2 cans **diced tomatoes**
 - (optional) 1/4 cup finely chopped fresh **cilantro**
