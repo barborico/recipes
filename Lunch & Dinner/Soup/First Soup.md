@@ -1,4 +1,4 @@
-# Brynn's First Soup
+# First Soup
 
 **Vegan**  
 **Servings:** 3  
