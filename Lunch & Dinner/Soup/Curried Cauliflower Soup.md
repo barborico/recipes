@@ -17,7 +17,7 @@ This hearty, peppery soup gets rave reviews. The basil garnish is a must, as is 
 - 1/2 tsp **lemon zest**
 - 1/2 cup unoaked **white wine** (like Sauvignon Blanc or Pinot Grigio, although I confess to often using whatever is at hand)
 - 1 1/2 cups **vegetable broth**
-- 2 1/2 cups **soy milk**
+- 2 cups **soy milk**
 - 1/2 tsp **sugar**
 - 1 tsp **rice vinegar** or white vinegar
 - **Salt** and freshly ground **black pepper**
