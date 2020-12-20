@@ -11,7 +11,7 @@ These are a classic from Miwa. I like making them bite-sized, although they tend
 ## Ingredients
 
 - 1 3/4 cup **flour**
-- 2/3 cup **sugar**
+- 1/2 cup **sugar**
 - 1 tsp ground **ginger**
 - 1 tsp ground **cinnamon**
 - 1/3 tsp ground **cloves**
@@ -31,9 +31,11 @@ These are a classic from Miwa. I like making them bite-sized, although they tend
 2. Mix together the flour, spices, baking soda, and salt.
 3. In a separate (larger) bowl, beat the eggs with the sugar, butter, and vanilla until smooth. Then slowly stir in the flour mixture. Finally, add the pumpkin and chocolate chips.
 4. Line a muffin tray or spray it with oil. (If you're doing multiple batches, spray between each.) Fill each cup about 3/4 full with the batter.
-5. Bake the muffins until a toothpick comes out clean, about 15-20 minutes (varies depending on the muffin size).
+5. Bake the muffins until a toothpick comes out clean, about 15 minutes (varies depending on the muffin size).
 6. Place all muffins not to be eaten immediately in a zip-lock bag while they are still warm. This will keep the muffins delightfully moist.
 
 ## Variations
+
+Go nuts and add chopped pecans.
 
 ## References
