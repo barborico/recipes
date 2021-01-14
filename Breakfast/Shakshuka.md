@@ -18,8 +18,11 @@ Elan's esteemed shakshuka.
 - ~5 **eggs**
 - 1/2 Tbsp **cumin**
 - 1/2 Tbsp **paprika**
-- 1/4 tsp **salt**
+- 1/2 tsp **salt**
 - 1/2 tsp **cayenne** or **chili flakes**, optional
+
+Toppings:
+- **avocado**
 - **fresh parsley**, optional
 - **feta cheese**, optional
 
