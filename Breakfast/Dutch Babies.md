@@ -20,7 +20,7 @@ An eggy souffle, the perfect vessel for many a topping.
 
 1. Preheat an oven to 425 degrees.
 2. Place the butter in a standard pie tin and put this in the preheating oven to melt.
-3. Blend the eggs, flour, milk, and salt thoroughly.
+3. Blend the eggs, flour, milk, and salt thoroughly (I use a blender).
 4. Pour the mixture into the now melted butter and put the pan back in the oven to cook. The dutch baby is done when the edges have risen up and turned brown (about 15 minutes).
 5. Serve and sprinkle with powdered sugar and/or other toppings.
 
