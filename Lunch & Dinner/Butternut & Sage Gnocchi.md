@@ -14,16 +14,17 @@ A dairy-free take on ricotta gnocchi. Tender and tasty result, with a classic so
 
 - 16 oz **silken tofu**, drained
 - 1/4 cup extra-virgin **olive oil**
-- 1 **egg** (thanks, Valentina!)
-- 1 1/3 cup roasted **butternut squash**
+- 2 **eggs** (thanks, Valentina!)
+- 1 cup roasted **butternut squash**
 - 3 Tbsp **pine nuts**, ground (e.g. in spice/coffee grinder)
 - 2 cloves **garlic**, pressed
 - 1 Tbsp **lemon juice**
 - 2 Tbsp **nutritional yeast**
-- 1 1/2 tsp **nutmeg**
+- 1/2 tsp **nutmeg**
 - 2/3 tsp **salt**
 - 1/3 tsp **pepper**
-- 3-4 cups **flour**, plus more for rolling
+- ~3 cups **flour**, plus more for rolling
+- (optional) 1 Tbsp **sugar**
 
 ### Sauce
 
@@ -39,7 +40,7 @@ A dairy-free take on ricotta gnocchi. Tender and tasty result, with a classic so
 ### Pasta
 
 1. Prepare (drain/roast/grind/etc.) the ingredients.
-2. Puree all the pasta ingredients minus the flour, e.g. with an immersion blender. Then stir in flour until the dough is capable of being rolled into logs (see next step). The more flour you add here, the chewier and less tender the finished pasta will be, and the better it will hold its shape--so make that trade off.
+2. Puree all the pasta ingredients minus the flour, e.g. with an immersion blender. Then stir in flour until the dough is capable of being rolled into logs (see next step). The more flour you add here, the chewier and less tender the finished pasta will be, but the better it will hold its shape--so make that trade off.
 3. Liberally dust a surface (ideally wood) with flour for rolling, and your hands as well.
 4. Make the individual pastas as follows: Take a handful of dough and roll it into a log about the thickness of your thumb (~3/4 inch diameter). Then cut that log into inch-long widths. To get the concave gnocchi shape that captures sauce so well, place your index and middle finger together near the top of the segment, perpendicular to the original length of the log. Applying moderate downward pressure, drag the piece of dough towards you across the countertop; it should curl up around the tips of your fingers. Set aside finished pastas.  
 See an example of [how to roll pasta](https://youtu.be/GgaRW1Gjv0Q?t=244).
@@ -58,6 +59,10 @@ See an example of [how to roll pasta](https://youtu.be/GgaRW1Gjv0Q?t=244).
 ### Lazy Shapes
 
 If you're pressed for time and don't care too much about the pasta's appearance, you can scoop teaspoonfuls of dough directly into the boiling water for cooking or onto a floured tray for freezing.
+
+### Different Squash
+
+Feel free to use a different kind of squash in the pasta. However, if it's less sweet, you may want to add sugar to compensate.
 
 ### Freezing
 
