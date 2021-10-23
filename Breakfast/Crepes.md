@@ -44,7 +44,7 @@ Blah blah
 
 ### Dairy-Free
 
-You can easily substitute in soymilk and vegan butter.
+You can easily substitute in soymilk and vegan butter. I've used a 50/50 soy and coconut milk blend which came out really nice.
 
 ### Lazy
 
