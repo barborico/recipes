@@ -1,14 +1,14 @@
 # Italian Stuffed Mushrooms
 
 **Vegetarian**  
-**Servings:** 8-10  
+**Servings:** 8  
 **Time:** 45 minutes
 
 ## Description
 
 Here's one of my few ties to my Italian heritage (albeit, with a vegetarian twist). Thanks, mom! It's tasty as a main or side, plus it's a good way to use up old bread.
 
-Any extra mushroom filling is also delightful in a lasagna or fritatta.
+Extra mushroom filling (you will have some) is delightful in a lasagna or fritatta.
 
 ## Ingredients
 
@@ -24,17 +24,17 @@ Any extra mushroom filling is also delightful in a lasagna or fritatta.
 - 1/2 tsp **salt**
 - 1/3 cup **nutritional yeast**
 - 2 cups crumbled **bread**
-- 3 **eggs** (thanks, Illyria!) 
+- 4 **eggs** (thanks, Illyria!) 
 
 ## Instructions
 
-1. Soak the TVP in 1 1/2 boiling water. The water should be fully absorbed by the time this is added to the other ingredients (takes about 15? minutes).
+1. Soak the TVP in the boiling water. The water should be fully absorbed by the time this is added to the other ingredients (takes ~15 min).
 2. Preheat the oven to 350 degrees.
 3. Remove the stems from the mushrooms and mince them.
 4. Saute the garlic and pine nuts in the oil.
 5. Add the mushroom stems and the spices to the pan and cook for a few minutes.
-6. Pour the contents of the pan into a mixing bowl and add the bread, eggs, and nutritional yeast. Stir together.
-7. Place the mushroom tops on a jelly roll pan, concave side up. Fill each mushroom and bake for TODO minutes.
+6. Pour the contents of the pan into a mixing bowl and add the bread, eggs, TVP, and nutritional yeast. Stir together.
+7. Place the mushroom tops on a jelly roll pan, concave side up. Fill each mushroom and bake for 20-25 minutes.
 
 ## Variations
 
