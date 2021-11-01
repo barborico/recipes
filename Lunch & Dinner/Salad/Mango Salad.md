@@ -13,13 +13,15 @@ A reconstruction of the best salad from my household's favorite Thai restaurant.
 These are estimates of the ingredients in the original salad.
 
 ### Salad
-- firm **tofu**, cubed and fried
-- **cashews**, roasted
+- extra firm **tofu**, pressed, cubed, and fried
+- **cashews**
 - **mango**, sliced
+- **carrots**, grated
+- **red cabbage**, grated
 - **lettuce**, chopped
-- **cilantro**?
-- **green onion**?
-- **red chili/red pepper/jalapeno**
+- **cilantro**, minced
+- **scallions**, finely chopped 
+- (optional) **red chili/red pepper/jalapeno**
 
 ### Dressing
 - **lime/rice vinegar**
@@ -27,9 +29,9 @@ These are estimates of the ingredients in the original salad.
 - **sesame oil**
 - **vegan fish sauce**
 - **soy sauce/tamari**
-- **peanut butter**
-- **ginger**, grated??
-- **garlic**, minced
+- **peanut butter**?
+- **ginger**, grated?
+- **garlic**, minced?
 
 ## Instructions
 
