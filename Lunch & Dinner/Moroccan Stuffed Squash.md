@@ -38,6 +38,14 @@ Fall and winter are squash seasons! This is a great way to use acorn or similar 
 
 ## Variations
 
+### Stew, don't stuff
+
+If the squash you're using don't stuff well, you can chop and roast them. Then add to the chickpea tomato stew when it's about done.
+
+### Use other squash
+
+- **Kabocha:** sweeter and very flavorful
+
 ## References
 
 [EatingWell: Moroccan Chickpea-Stuffed Acorn Squash](http://www.eatingwell.com/recipe/255786/moroccan-chickpea-stuffed-acorn-squash)
