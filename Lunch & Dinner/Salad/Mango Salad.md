@@ -20,13 +20,14 @@ These are estimates of the ingredients in the original salad.
 - **red cabbage**, grated
 - **lettuce**, chopped
 - **cilantro**, minced
+- **red onion**, thinly sliced
 - **scallions**, finely chopped 
 - (optional) **red chili/red pepper/jalapeno**
 
 ### Dressing
 - **lime/rice vinegar**
 - **honey/sugar/palm sugar/brown sugar/agave**
-- **sesame oil**
+- **sesame oil**?
 - **vegan fish sauce**
 - **soy sauce/tamari**
 - **peanut butter**?
