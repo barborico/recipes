@@ -19,7 +19,7 @@ Elan's esteemed shakshuka.
 - 1/2 Tbsp **cumin**
 - 1/2 Tbsp **paprika**
 - 1/2 tsp **salt**
-- 1/2 tsp **cayenne** or **chili flakes**, optional
+- 1/2 tsp **cayenne** or **chili flakes**, or one minced **jalapeño**
 
 Toppings:
 - **avocado**
