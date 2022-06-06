@@ -16,14 +16,14 @@ A dairy-free take on ricotta gnocchi. Tender and tasty result, with a classic so
 - 1/4 cup extra-virgin **olive oil**
 - 2 **eggs** (thanks, Valentina!)
 - 1 cup roasted **butternut squash**
-- 3 Tbsp **pine nuts**, ground (e.g. in spice/coffee grinder)
 - 2 cloves **garlic**, pressed
 - 1 Tbsp **lemon juice**
 - 2 Tbsp **nutritional yeast**
-- 1/2 tsp **nutmeg**
-- 2/3 tsp **salt**
-- 1/3 tsp **pepper**
+- 1/4 tsp **nutmeg**
+- 3/4 tsp **salt**
+- 1/2 tsp **pepper**
 - ~3 cups **flour**, plus more for rolling
+- (optional) 3 Tbsp **pine nuts**, ground (e.g. in spice/coffee grinder)
 - (optional) 1 Tbsp **sugar**
 
 ### Sauce
