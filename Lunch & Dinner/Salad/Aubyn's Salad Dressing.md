@@ -10,8 +10,9 @@ What makes Aubyn's salads so delightful? It's partly the homegrown vegetables, a
 
 ## Ingredients
 
-- 1/3 cup extra virgin **olive oil**
-- 2/3 cup **nutritional yeast**
+- 1/4 cup **water** (hot)
+- 1/4 cup extra virgin **olive oil**
+- 3/4 cup **nutritional yeast**
 - 3 cloves **garlic**, pressed
 - 2 Tbsp **mustard**, dijon preferred
 - 1 1/2 Tbsp **liquid aminos** or soy sauce
