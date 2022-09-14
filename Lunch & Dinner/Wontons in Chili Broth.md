@@ -23,21 +23,21 @@ Also, thanks to Glo for the tip to add miso.
 - 1 medium **carrot**, peeled and finely grated
 - 2 Tbsp **soy sauce** to taste
 - 1/4 tsp **pepper** to taste
-- 2 1/2 tbsp **corn starch** or alternatively potato or arrowroot starch
+- 2 Tbsp **corn starch** or alternatively potato or arrowroot starch
 - (if using frozen tofu) 1/4 cup **vegetable broth**
-- (optional) 1 tbsp dark soy sauce for colour, optional
+- (optional) 1 tbsp dark soy sauce for colour
 
 ### Broth
 
 Adjust amounts to taste.
 
 - 2 cup **vegetable broth** or hot water (e.g. that used to cook wontons)
-- 2-4 Tbsp **soy sauce**
-- 1/4 cup **chili garlic paste**
+- 2 Tbsp **soy sauce**
+- 3 Tbsp **chili garlic paste**
 - 1/4 cup **miso paste** (preferably red)
 - 2 tsp **sugar**
 - 1/4 cup **rice vinegar** or distilled white vinegar
-- 4 tsp **sesame oil**
+- 1 1/2 Tbsp **sesame oil**
 - (optional) 2 tsp **doubanjiang** or more chili sauce
 
 ### Garnishes
@@ -73,7 +73,7 @@ Adjust amounts to taste.
 
 ### Putting It All Together
 
-1. Pour the broth over the wontons.
+1. Pour a moderate amount of broth over the wontons.
 2. Sprinkle the green onions and sesame seeds over the top as a garnish.
 
 ## Variations
