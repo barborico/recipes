@@ -1,7 +1,7 @@
 # Miso Ramen
 
 **Vegan**  
-**Servings:** 1  
+**Servings:** 2  
 **Time:** 25 min
 
 ## Description
@@ -36,9 +36,9 @@ After watching Tampopo, my sister and I were in the mood for ramen. Since the wa
 
 1. Heat the sesame oil in a pot over medium high heat.
 1. Add in the garlic, ginger, and white parts of the scallion. Saute for 1-2 min.
-1. Lower the heat to medium and add the miso, nut butter, chili paste, stock, and soy milk. Mix until combined.
+1. Lower the heat to medium and add the nut butter, chili paste, stock, and soy milk. Mix until combined.
 1. Add the chili oil and dried mushrooms. Then cover and leave to boil over medium high heat (~5 min).
-1. Once the soup boils, lower heat to a simmer and adjust spicing to taste. 
+1. Once the soup boils, lower heat to a simmer, add the miso, and adjust spicing to taste. 
 1. Add your veggies of choice.
 1. When the veggies are almost done, add the ramen brick. Cook only until quite chewy.
 1. Top with corn, green scallions, sesame seeds, and finally chili oil to serve.
